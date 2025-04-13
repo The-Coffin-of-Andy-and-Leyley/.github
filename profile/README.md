@@ -6,6 +6,8 @@
 
 *Walk-n-talk adventure with light puzzling. Brother and sister practice cannibalism after witnessing a botched satanic ritual.*
 
+![image](https://github.com/user-attachments/assets/f1fde23c-a87a-4478-8bb2-f19f6968c9cf)
+
 ---
 
 ## 📖 STORY
